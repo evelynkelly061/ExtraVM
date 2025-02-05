@@ -1,4 +1,4 @@
-# ExtraVM Coupon Codes and 2024 ExtraVM Latest Deals Compilation Summary
+# ExtraVM Coupon Codes and 2025 ExtraVM Latest Deals Compilation Summary
 
 ### ExtraVM Introduction
 ExtraVM offers DDOS-protected NVMe VPS hosting in multiple locations across the USA, as well as in Tokyo, Singapore, and Amsterdam. Established in 2014 and registered as an LLC in Delaware, USA, ExtraVM provides high-performance hosting solutions with a focus on reliability and customer service.
